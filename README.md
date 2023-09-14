@@ -8,4 +8,4 @@
 
 -ESTUDO NA ESCOLA HELENA KOLODY
 
-![](https://tenor.com/pt-BR/view/0001-gif-17282391190974969363)
+![](https://media.tenor.com/79djON9nNhMAAAAC/0001.gif)
